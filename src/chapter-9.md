@@ -1,5 +1,3 @@
-Chapter 8: Sustainability and Continuous Improvement
-====================================================
 
 In this chapter, we will explore the importance of sustainability and continuous improvement within corporate social responsibility initiatives. We will discuss how organizations can embed sustainability into their corporate culture, identify opportunities for continuous improvement, and effectively measure and report on the impact of their initiatives.
 

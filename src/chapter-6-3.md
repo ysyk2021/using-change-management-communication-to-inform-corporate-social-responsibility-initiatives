@@ -1,5 +1,3 @@
-Addressing Resistance to Change
-===========================================================================
 
 Communicating change internally is essential for effectively implementing corporate social responsibility (CSR) initiatives and building a culture of sustainability within the organization. In this chapter, we will explore strategies for addressing resistance to change and building support for CSR initiatives.
 

@@ -1,5 +1,3 @@
-Strategies for Communicating Change Within the Organization
-=======================================================================================================
 
 Communicating change within the organization is essential for effectively implementing corporate social responsibility (CSR) initiatives. In this chapter, we will explore strategies for communicating change within the organization.
 

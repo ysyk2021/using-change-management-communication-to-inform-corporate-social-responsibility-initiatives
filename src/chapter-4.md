@@ -1,5 +1,3 @@
-Chapter 3: Social Issues
-========================
 
 Corporate social responsibility (CSR) initiatives are important for businesses to address social issues and promote positive outcomes. In this chapter, we will explore key social issues affecting businesses, approaches to addressing social issues, and case studies of successful social initiatives.
 

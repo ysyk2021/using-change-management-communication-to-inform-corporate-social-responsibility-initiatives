@@ -1,5 +1,3 @@
-Chapter 1: Defining Corporate Social Responsibility
-===================================================
 
 Corporate social responsibility (CSR) is a concept that has gained significant attention in recent years. In this chapter, we will explore the definition of CSR, the business case for CSR, and the role of communication in promoting and informing CSR initiatives.
 

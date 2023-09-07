@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored the role of change management communication in informing corporate social responsibility (CSR) initiatives and addressing environmental and social issues. We have discussed strategies for developing a change management communication plan, communicating change internally, embedding sustainability into corporate culture, and identifying opportunities for continuous improvement.
 

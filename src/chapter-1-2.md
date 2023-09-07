@@ -1,5 +1,3 @@
-Overview of Corporate Social Responsibility Initiatives
-=====================================================================
 
 Corporate social responsibility (CSR) initiatives are becoming increasingly important for businesses as stakeholders place greater emphasis on social and environmental outcomes. In this book, we will explore how effective change management communication can inform CSR initiatives that address environmental and social issues.
 

@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The purpose of this book is to explore how effective change management communication can inform corporate social responsibility (CSR) initiatives that address environmental and social issues. CSR initiatives are becoming increasingly important for businesses as stakeholders place greater emphasis on social and environmental outcomes.
 

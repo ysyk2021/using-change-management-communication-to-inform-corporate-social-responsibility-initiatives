@@ -1,5 +1,3 @@
-Managing External Perceptions of Corporate Social Responsibility Initiatives
-========================================================================================================================
 
 Managing external perceptions of corporate social responsibility (CSR) initiatives is essential for building trust and credibility with stakeholders and demonstrating the value of CSR initiatives. In this chapter, we will explore strategies for managing external perceptions of CSR initiatives.
 

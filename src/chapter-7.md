@@ -1,5 +1,3 @@
-Chapter 6: Communicating Change Externally
-==========================================
 
 Strategies for Communicating with External Stakeholders
 -------------------------------------------------------

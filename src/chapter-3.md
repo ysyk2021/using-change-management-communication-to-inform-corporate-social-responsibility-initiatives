@@ -1,5 +1,3 @@
-Chapter 2: Environmental Issues
-===============================
 
 Corporate social responsibility (CSR) initiatives are important for businesses to address environmental issues and promote positive outcomes. In this chapter, we will explore key environmental issues affecting businesses, approaches to addressing environmental issues, and case studies of successful environmental initiatives.
 

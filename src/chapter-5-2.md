@@ -1,5 +1,3 @@
-Identifying Key Stakeholders
-==========================================================================================
 
 Developing a change management communication plan is essential for effectively implementing corporate social responsibility (CSR) initiatives. In this chapter, we will explore strategies for identifying key stakeholders and developing a change management communication plan.
 

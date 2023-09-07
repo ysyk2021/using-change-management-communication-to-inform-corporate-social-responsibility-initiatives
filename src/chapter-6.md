@@ -1,5 +1,3 @@
-Chapter 5: Communicating Change Internally
-==========================================
 
 Communicating change internally is a critical component of effectively implementing corporate social responsibility (CSR) initiatives. In this chapter, we will explore strategies for communicating change within the organization, building support for CSR initiatives, and addressing resistance to change.
 

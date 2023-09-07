@@ -1,5 +1,3 @@
-Chapter 4: Developing a Change Management Communication Plan
-============================================================
 
 Developing a comprehensive change management communication plan is critical for the success of corporate social responsibility (CSR) initiatives. In this chapter, we will explore steps for developing an effective communication plan, including identifying key stakeholders and creating compelling messages.
 

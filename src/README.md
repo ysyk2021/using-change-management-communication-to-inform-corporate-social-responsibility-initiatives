@@ -1,4 +1,4 @@
-# Introduction
+
 
 "Using Change Management Communication to Inform Corporate Social Responsibility Initiatives: Addressing Environmental and Social Issues" is a crucial guide for businesses seeking to make meaningful impacts in the areas of social responsibility and environmental sustainability. The book offers practical strategies and techniques for communicating change management initiatives related to CSR, including approaches for addressing complex environmental issues and promoting social justice.
 
@@ -9,3 +9,7 @@ With expert guidance on stakeholder engagement, reputation management, and susta
 Whether you're an executive looking to lead your organization's CSR strategy or a sustainability professional seeking to enhance your communication skills, "Using Change Management Communication to Inform Corporate Social Responsibility Initiatives" is an essential resource for anyone interested in creating a more sustainable and socially responsible future.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

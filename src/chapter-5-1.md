@@ -1,5 +1,3 @@
-Steps for Developing an Effective Communication Plan
-==================================================================================================================
 
 Developing a change management communication plan is essential for effectively implementing corporate social responsibility (CSR) initiatives. In this chapter, we will explore steps for developing an effective communication plan.
 

@@ -1,5 +1,3 @@
-Strategies for Communicating with External Stakeholders
-===================================================================================================
 
 Communicating with external stakeholders is essential for effectively implementing corporate social responsibility (CSR) initiatives and demonstrating accountability to the wider community. In this chapter, we will explore strategies for communicating with external stakeholders.
 

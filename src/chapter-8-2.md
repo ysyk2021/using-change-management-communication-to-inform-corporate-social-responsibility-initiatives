@@ -1,5 +1,3 @@
-Allocating Resources and Managing Budgets
-============================================================================
 
 Allocating resources and managing budgets is essential for effectively implementing corporate social responsibility (CSR) initiatives. In this chapter, we will explore strategies for allocating resources and managing budgets.
 
